@@ -1,1 +1,1 @@
-No affiliation with FSB or CCP
+No affiliation with the FSB nor CCP
